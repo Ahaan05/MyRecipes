@@ -1,0 +1,1 @@
+ chicken breasts are sprinkled with rosemary and garlic, and grilled until cooked through and juicy. They're added to buns, topped with lettuce, sliced mozzarella, fresh tomatoes.
